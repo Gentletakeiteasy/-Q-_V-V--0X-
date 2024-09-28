@@ -1,7 +1,7 @@
-## Queen_Anita-V1
+## ༆QÜËËÑ_VÏVÏÃÑ-0X༆
    <a><img src='https://i.imgur.com/LyHic3i.gif'/></a><a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 <p align="center"> 
-<u>⚡ A simple WhatsApp User Bot Created David Cyril ⚡</u>
+<u>⚡ A simple WhatsApp User Bot Created by GØØDÑËẞẞ ⚡</u>
 </p>
 <p align="center">
 <img src="https://telegra.ph/file/3bda3bb7eca674f4fa05a.jpg"/>       
